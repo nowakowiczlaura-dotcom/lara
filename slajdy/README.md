@@ -1,6 +1,6 @@
 # Czy samo patrzenie może leczyć?
 
-Rola obserwacji ruchu w rehabilitacji poudarowej. Siedem slajdów w formacie 16:9, w palecie pudrowego różu, burgundu i kremu, z tytułem po lewej i schematem obserwacji ruchu po prawej.
+Rola obserwacji ruchu w rehabilitacji poudarowej. Siedem slajdów w formacie 16:9, w palecie pudrowego różu, burgundu i kremu, z granatową i turkusową stroną tytułową.
 
 ## Pobieranie
 
